@@ -1,1 +1,2 @@
 Altynbek Yermurat
+8
